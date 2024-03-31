@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ajmalarshad
 - 👀 I’m interested in result driven marketing service
 - 🌱 I’m currently learning new tips in digital marketing
-- 💞️ I’m looking to collaborate with your business for immence results as a freelance digital marketer
+- 💞️ I’m looking to collaborate with your business for great results as a freelance digital marketer
 - 📫 How to reach me ( https://ajmalarshad.com )
 
 <!---
